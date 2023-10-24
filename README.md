@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @by-gosix
+- 🌱 I’m currently learning. do you help me?
+- iletişim için = 10rtrhn@gmail.com
